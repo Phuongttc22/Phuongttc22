@@ -14,7 +14,7 @@ I love my son.
 I miss son.
 I hope seee you soon.
 Have a nice day.
-Good afternoon
+Good afternoon.
 Good luck 
 Wish you will always be successful
 Dawn is always ahead.
