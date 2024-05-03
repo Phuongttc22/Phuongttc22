@@ -28,4 +28,4 @@ If you don't make me happy, don't make me miserable.
 Start the day holiday.
 Go home now.
 Happy international labor day.
-Work hard
+Work hard. 
