@@ -37,5 +37,4 @@ I miss you so much.
 I'm very disappointed.
 I want to peace.
 Hi saturday.
-Việt
 Try to forget and start again
