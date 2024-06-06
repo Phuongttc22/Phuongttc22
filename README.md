@@ -45,4 +45,4 @@ I so happy.
 I'm tired but happy.
 I'm tired, I want to peace.
 Hope everything will be good.
-Hope every day is like the first
+Hope every day is like the first.
