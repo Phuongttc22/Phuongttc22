@@ -46,4 +46,4 @@ I'm tired but happy.
 I'm tired, I want to peace.
 Hope everything will be good.
 Hope every day is like the first.
-Every beginning is difficult
+Every beginning is difficult.
