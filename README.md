@@ -47,4 +47,4 @@ I'm tired, I want to peace.
 Hope everything will be good.
 Hope every day is like the first.
 Every beginning is difficult.
-What am I waiting for
+What am I waiting for?
