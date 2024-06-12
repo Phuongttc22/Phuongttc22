@@ -48,4 +48,4 @@ Hope everything will be good.
 Hope every day is like the first.
 Every beginning is difficult.
 What am I waiting for?
-There are things that need to be innovated
+There are things that need to be innovated.
