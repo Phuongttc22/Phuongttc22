@@ -49,4 +49,4 @@ Hope every day is like the first.
 Every beginning is difficult.
 What am I waiting for?
 There are things that need to be innovated.
-Many times I feel stuck in this life
+Many times I feel stuck in this life.
