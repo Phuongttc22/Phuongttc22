@@ -51,4 +51,4 @@ What am I waiting for?
 There are things that need to be innovated.
 Many times I feel stuck in this life.
 Hope everything goes well.
-Maybe letting go is the best choice right now
+Maybe letting go is the best choice right now.
