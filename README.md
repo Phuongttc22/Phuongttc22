@@ -52,4 +52,4 @@ There are things that need to be innovated.
 Many times I feel stuck in this life.
 Hope everything goes well.
 Maybe letting go is the best choice right now.
-Have fun and live happily
+Have fun and live happily.
