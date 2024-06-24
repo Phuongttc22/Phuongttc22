@@ -54,4 +54,4 @@ Hope everything goes well.
 Maybe letting go is the best choice right now.
 Have fun and live happily.
 Now I don't know whether to be happy or sad.
-Don't care
+Don't care.
