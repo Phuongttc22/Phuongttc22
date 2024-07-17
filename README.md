@@ -66,3 +66,4 @@ Catch me if you can.
 Happy birthday oppa.
 Being alone can be doubly unhappy.
 Sushine does not exist at night.
+Be kind even when you have not been treated kindly
