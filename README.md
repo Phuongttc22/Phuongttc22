@@ -72,4 +72,4 @@ After all, all disappointments in this world come from too much hope..
 How are you today..
 It's okay to be alone, it's okay to be happy.
 Provides a great experience.
-A person's kindness is more important than their appearance.
+A person's kindness is more important than their appearance..
