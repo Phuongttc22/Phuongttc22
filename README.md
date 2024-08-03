@@ -73,4 +73,4 @@ How are you today..
 It's okay to be alone, it's okay to be happy.
 Provides a great experience.
 A person's kindness is more important than their appearance..
-My mouth says I'm not sad, but my mind is full of ruins
+My mouth says I'm not sad, but my mind is full of ruins.
