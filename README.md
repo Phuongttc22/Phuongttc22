@@ -74,4 +74,4 @@ It's okay to be alone, it's okay to be happy.
 Provides a great experience.
 A person's kindness is more important than their appearance..
 My mouth says I'm not sad, but my mind is full of ruins..
-I hope life will treat me a little more gently, love me a little more..
+I hope life will treat me a little more gently, love me a little more...
