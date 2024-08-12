@@ -76,3 +76,4 @@ A person's kindness is more important than their appearance..
 My mouth says I'm not sad, but my mind is full of ruins..
 I hope life will treat me a little more gently, love me a little more...
 If it stays like this, when will it be okay??
+When you're too tired, don't force yourself to "Try hard", but tell yourself "Let's go to sleep", tomorrow will be good..😊
