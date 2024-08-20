@@ -79,3 +79,4 @@ If it stays like this, when will it be okay??
 When you're too tired, don't force yourself to "Try hard", but tell yourself "Let's go to sleep", tomorrow will be good..😊
 We are always disappointed by things we expect too much...
 Don't compare your life with someone else. Each person's sky is a different blue. Tears are the same, if you don't taste them, how can you know who is saltier than who..
+I'm tired
