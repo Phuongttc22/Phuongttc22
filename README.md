@@ -80,6 +80,6 @@ When you're too tired, don't force yourself to "Try hard", but tell yourself "Le
 We are always disappointed by things we expect too much...
 Don't compare your life with someone else. Each person's sky is a different blue. Tears are the same, if you don't taste them, how can you know who is saltier than who..
 I'm tired.
-“Just live sincerely, gently let go, calmly accept. Beautiful things always take time..."
+“Just live sincerely, gently let go, calmly accept. Beautiful things always take time...".
 
 
