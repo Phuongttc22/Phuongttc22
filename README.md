@@ -83,3 +83,4 @@ I'm tired.
 “Just live sincerely, gently let go, calmly accept. Beautiful things always take time...".
 Hi Sunday..
 "People who don't give you priority, don't consider them the only one!"...
+Hello september
