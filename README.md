@@ -88,3 +88,4 @@ Hello september...
 I hope the future won't have to be sad because of things like the present..
 Not showing it doesn't mean not being sad. Not talking about it doesn't mean not paying attention. Sometimes there is no other way but silence..
 15 days countdown.
+13 days countdown
