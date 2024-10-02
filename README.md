@@ -94,4 +94,4 @@ Not showing it doesn't mean not being sad. Not talking about it doesn't mean not
 7 days.
 5 days.
 3 days...
-I'm tired
+I'm tired.
