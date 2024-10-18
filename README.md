@@ -97,3 +97,4 @@ Not showing it doesn't mean not being sad. Not talking about it doesn't mean not
 I'm tired...
 5ting..
 Not hope.
+Hi Hanoi
