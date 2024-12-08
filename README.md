@@ -29,7 +29,7 @@ Start the day holiday..
 Go home now.
 Happy international labor day.
 Work hard..
-It's time to leave.
+It's time to leave..
 I so sad today.
 I will success..
 Try your best.
