@@ -30,7 +30,7 @@ Go home now.
 Happy international labor day.
 Work hard..
 It's time to leave..
-I so sad today.
+I so sad today..
 I will success..
 Try your best.
 I miss you so much..
