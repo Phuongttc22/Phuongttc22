@@ -18,7 +18,7 @@ Good afternoon..
 Good luck..
 Wish you will always be successful..
 Dawn is always ahead..
-Wishing you peace always.
+Wishing you peace always..
 Count the days we meet..
 3 more days until we meet..
 Let go of things that don't belong to you..
