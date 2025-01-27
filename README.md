@@ -25,7 +25,7 @@ Let go of things that don't belong to you..
 Today we meet..
 I so happy..
 If you don't make me happy, don't make me miserable..
-Start the day holiday..
+Start the day holiday...
 Go home now..
 Happy international labor day.
 Work hard..
