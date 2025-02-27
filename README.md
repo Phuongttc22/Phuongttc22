@@ -22,7 +22,7 @@ Wishing you peace always..
 Count the days we meet..
 3 more days until we meet..
 Let go of things that don't belong to you..
-Today we meet..
+Today we meet...
 I so happy..
 If you don't make me happy, don't make me miserable..
 Start the day holiday...
